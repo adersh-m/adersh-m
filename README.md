@@ -41,4 +41,4 @@ I'll be writing on [Medium](https://medium.com/@adersh.008) about:
 
 ---
 
-⭐ **Feel free to explore my repos and connect with me!**  
+🧠 Building with intention. Learning without pressure. One project at a time.
